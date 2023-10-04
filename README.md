@@ -5,3 +5,4 @@ receta de alfajores
 2. corta las pechugas 
 3. pasarla por huveo
 4. luego pasarla por pan rallado
+5. por ultimo freir 
